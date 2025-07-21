@@ -1,0 +1,1 @@
+# Navigating-cosmetics-trends-and-consumer-insights-with-tablueau
